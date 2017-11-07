@@ -1,0 +1,14 @@
+### Secession
+- Kurdistan Regional Government conducts referendum for independence
+- States trying to secede 
+- "de facto states" - separatist states that're administered autonomously, but are part of the sovereign nation state
+  - Northern SL by LTTER from 1980's to 2000s
+  - Gaza ruled by Hamas
+  - Southern Ossetia(Georgia)
+  - Somaliland and Puntland in Somalia
+  - Eritrea, Easty Timor, South Sudan were formerly de facto states, but later became de jure nation states
+- What helps de fatco states?
+  - External aptronage - military; lowers chance of peaceful transition either as a separate state or integration with nation state
+  - Insurgent fragementation
+  - Extent of rebel governance; should be similar to state governance and have fall back mechanisms/alternatives. This could help gain international support
+  - Presence of government veto players in the parent state; Too many such players doesn't help
